@@ -1,3 +1,3 @@
 ### 📫 yegor.rb@gmail.com
-### 💬 Telegram: yegordev
+### 💬 Telegram: yegordv
 
